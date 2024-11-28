@@ -8,5 +8,5 @@ viruslove ໒꒱
   <img width="600" height="600" src="https://files.catbox.moe/adf0ru.gif">
 </p>
 <p align="center">
-  <img width="600" src="https://64.media.tumblr.com/66167d0f850df089a9b7ec8a6241a288/eb2ed26792e238be-a7/s400x600/7b7bda603969f0e70d2c01ca701775523799f6d7.pnj">
+  <img width="600" src="https://64.media.tumblr.com/d8ad64e4919bd3399dfa0007454a8bcc/d7a311d22a3343ec-c3/s400x600/3bb469a8dfb1bcaee8bb048a6593ba68fce2e5f3.pnj">
 </p>
