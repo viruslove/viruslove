@@ -7,9 +7,6 @@ viruslove ໒꒱
 <p align="center">
   <img width="600" height="600" src="https://files.catbox.moe/adf0ru.gif">
 </p>
-<h3 align="center">
-  they ; any 
-</h3>
 <p align="center">
   <img width="600" src="https://64.media.tumblr.com/66167d0f850df089a9b7ec8a6241a288/eb2ed26792e238be-a7/s400x600/7b7bda603969f0e70d2c01ca701775523799f6d7.pnj">
 </p>
